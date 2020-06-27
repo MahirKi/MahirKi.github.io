@@ -10,4 +10,4 @@ Obwohl er ein theoretischer Psychologe und praktizierender Kliniker war, hat er 
 Er hielt den Prozess der Individuation für notwendig, damit eine Person ganz wird. Dies ist ein psychologischer Prozess der Integration des Bewusstseins mit dem Unbewussten bei gleichzeitiger Wahrung der bewussten Autonomie. Individuation war das zentrale Konzept der analytischen Psychologie.
 
 Viele bahnbrechende psychologische Konzepte wurden ursprünglich von Jung vorgeschlagen, darunter die Archetypen, das kollektive Unbewusste, der Komplex und die Synchronizität.
- Ein populäres psychometrisches Instrument, der Myers-Briggs-Typenindikator (MBTI), wurde hauptsächlich aus Jungs Theorien entwickelt.
+ Ein populäres psychometrisches Instrument, der Myers-Briggs-Typenindikator, wurde hauptsächlich aus Jungs Theorien entwickelt.
